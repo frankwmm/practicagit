@@ -2,4 +2,4 @@
 
 Hello world!!!!!
 
-Ahora acompañenme aver esta historia
+Ahora acompañenme a ver esta historia
